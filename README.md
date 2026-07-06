@@ -1,2 +1,2 @@
 # Divija_portfolio
-Describing about myself , my self-acheivements and self information and website manner
+Describing about myself , my self-acheivements and self information in website manner
